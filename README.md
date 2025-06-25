@@ -1,4 +1,4 @@
-# HeavenlyEye - 系统信息全能之眼 👁️
+# HeavenlyEye - 天堂之眼 👁️
 
 **Made in Heaven!** ✨
 
